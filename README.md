@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @smartbot45
+- made it to learn git in team, my main account is B0ond
